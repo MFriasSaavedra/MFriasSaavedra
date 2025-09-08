@@ -7,7 +7,7 @@
 
 - 📄 Know about my experiences [https://flowcv.com/resume/vk3s2fmg4g9l](https://flowcv.com/resume/vk3s2fmg4g9l)
 
-- ⚡ Fun fact **Former anthropologist, beginner guitarist. Plants🌱, bicycles, and dogs**
+- ⚡ Fun fact **Former anthropologist. Plants🌱, bicycles🚴, and dogs🐕**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
